@@ -1,4 +1,4 @@
-## Hi there I'm Tonni Professional web & developer👋
+## Hi there👋 I'm Tonni Professional web & developer
 
 
 - 🔭 I’m currently working on upwork
